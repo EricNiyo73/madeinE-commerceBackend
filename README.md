@@ -1,0 +1,1 @@
+"Made in Rwanda Craft Shop" is an online platform that connects Rwandan artisans and their unique handcrafted products with customers all over the world. Shop authentic and sustainable crafts, including clothing, jewelry, home decor, and more, while supporting local businesses and promoting traditional Rwandan artistry.
